@@ -3,6 +3,7 @@ How to manage your finances as an orgnisation, hub or person.
 
 ## Introduction 
 Fianace is one of the strong holds of any organisation or hub, it is what keeps the firm running 
+
 ## Finance and control
 Therefore to achieve a sustainable develoment in the tough actuality of today, NGO managers and hub managers should develope understanding and confidence that are necessary to use funds and money effectively.
 
